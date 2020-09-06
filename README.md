@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+* 大家好！这里是周柯宇！
+* 现居福建漳州！
+各位大学要一起努力啊！
